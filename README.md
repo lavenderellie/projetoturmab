@@ -1,5 +1,0 @@
-# Fulana
-
----
-
-Estudante
