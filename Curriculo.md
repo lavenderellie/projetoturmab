@@ -1,7 +1,7 @@
 # Fulana
 
 ---
-## Dados pessoar :
+## Dados pessoais :
 # Endereço: XXXXXXX 
 # MARILIA SP
 
@@ -9,6 +9,7 @@
 
 ## Experiência :
 
-# Dormir (muito bom)
+# Dormir (muito ruim!!!!!)
 # procrastinar-
 
+ 
