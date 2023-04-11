@@ -9,7 +9,5 @@
 
 ## Experiência :
 
-# Dormir (muito ruim!!!!!)
-# procrastinar-
-
+# Responsável!!!!!!!!!!!!!!!!
  
